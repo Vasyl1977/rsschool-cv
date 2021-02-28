@@ -1,4 +1,4 @@
-Cherniev Vasyl
+Cherniev Vasyl.
 
 Warszawa,
 
